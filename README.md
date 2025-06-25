@@ -13,7 +13,7 @@
 
 😄 Conhecido também como Ghabriel
 
-⚡ Curiosidade: Tenho mais ideias do que tempo pra pôr em prática. 😅
+⚡ Curiosidade: Tenho mais ideias do que tempo e vontade pra pôr em prática. 😅
 
 -->
 
